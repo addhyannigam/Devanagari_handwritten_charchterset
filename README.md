@@ -1,0 +1,1 @@
+# Devanagari_handwritten_charchterset
